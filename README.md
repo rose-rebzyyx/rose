@@ -101,8 +101,11 @@
 - ![](https://64.media.tumblr.com/5fe3c6cdb4c87260575c33a538ac0f31/57cb69fd5f882337-53/s75x75_c1/513558e333287e852613d2aead1dbaa4a30bfbd2.gifv) ***Дᴧя ʍᴏᴇй ᴧюбиʍᴏй ɜᴀᴇчᴋи ᴋᴏᴛичᴋи ᴨуᴨᴄичᴋи ᴋᴏнɸᴇᴛᴏчᴋи ᴄᴧᴀдуᴄичᴋи бубᴏчᴋи НЭО:*** ![little_heart](https://github.com/user-attachments/assets/22ec4479-6780-4af3-8696-9a6e96fb07e1)
 
 
+![image](https://github.com/user-attachments/assets/ece54072-f1f5-4fe5-9b42-ff61db0ad8bf)
+
 ![image](https://github.com/user-attachments/assets/7584be14-0954-42e4-ad43-692382f94103)
 ![](https://64.media.tumblr.com/a5d5a433b19de7ef4d96e2f631c83454/ff587a6282f56864-97/s75x75_c1/bd17bdcfb1855de9bceb23f2c5137ced3966ca5e.gifv)
+![](https://64.media.tumblr.com/c4de26c9032db5a4c085915069b440b8/e018519d595eb0b7-ae/s75x75_c1/534a4ea554fdf8f2661759fec6d86b6f2af334e9.gifv)
 ![iheartyou](https://github.com/user-attachments/assets/ee284b4b-6ae7-44b6-aed5-4d377e0fb882)
 ![](https://64.media.tumblr.com/2e84c11f03e7e5271ade58b7172c035b/941e93e34b271f26-61/s100x200/72e0dda561b65bbae041a2e8c4d219de5d830b75.gifv)
 ![2xwvws](https://github.com/user-attachments/assets/8b637e85-9706-477e-97cf-ce9e800d9196)
@@ -110,13 +113,44 @@
 ![g9cnkz](https://github.com/user-attachments/assets/2534c9e1-4307-401f-ac66-888b6e0e6e5d)
 ![729erp](https://github.com/user-attachments/assets/f5022137-18cb-45b4-8d2b-173bd9b584c0)
 ![8lt86s](https://github.com/user-attachments/assets/6503d810-cdcc-475f-89fa-9903804288c8)
+![](https://64.media.tumblr.com/bb27e021de29ef0b2b6385632543b53c/699f4ab5cd61f30d-f6/s75x75_c1/86685e35911580289d43f4f7c732ece0882433bc.gifv)
 
 
+![](https://64.media.tumblr.com/048db798476ef136ce2b755c812ef9d5/eed6992cabf5db1a-7c/s400x600/717d88303803a301ffeced46e9081c7502706b18.gifv)
 
 
+- *Для ОЛЭГА:*
 
 
+![](https://64.media.tumblr.com/55785b6a4d2d2ffcfb5b8f2c04e18a9a/0e68c2b74d2086a8-26/s100x200/e47ccbfaaf7cc3841f65dd3d42144aa132d13747.gifv)
 
+
+![](https://64.media.tumblr.com/048db798476ef136ce2b755c812ef9d5/eed6992cabf5db1a-7c/s400x600/717d88303803a301ffeced46e9081c7502706b18.gifv)
+
+
+- *Для Финна и Ксюши:*
+
+![](https://64.media.tumblr.com/96ea00d4430ab7173a20df3a410035fe/941e93e34b271f26-8c/s75x75_c1/6d39055aaa32b1c95f87e280c9856f618a82516b.gifv)
+
+![](https://64.media.tumblr.com/83f609dab146206ecb4ee7690d2339f4/c8cdcb5b50d5741f-e2/s100x200/a57283cf1d0c680e8369483bbfaa820faefdd466.gifv)
+![image](https://github.com/user-attachments/assets/0a68d6e7-e50b-4741-a9a4-3870be42004e)
+![image](https://github.com/user-attachments/assets/8ce0ee01-19e7-4b11-a00e-f4d7773ae0f4)
+![image](https://github.com/user-attachments/assets/203e9e2f-370a-436f-95a8-96caed1c3583)
+
+
+![](https://64.media.tumblr.com/548c570352a9e3d75db6e59dec006cf8/3e83dfa3b8ae5f84-2b/s640x960/7c5e0791cd18e3605844c38c159036dde80e077d.gifv)
+
+![image](https://github.com/user-attachments/assets/0e31debc-849a-4ef8-b050-a994bf1bf123)
+
+![](https://64.media.tumblr.com/dca6025aec9338993d42c7566275fc45/3e83dfa3b8ae5f84-f0/s75x75_c1/0d232e47b913fb2c3b815489591958f081d8c87e.gifv)
+
+
+![image](https://github.com/user-attachments/assets/4119c88d-96aa-46f5-9cbb-da026298f8d1)
+
+![image](https://github.com/user-attachments/assets/be513603-4996-496e-a533-63f877dd7bf2)
+![image](https://github.com/user-attachments/assets/0c6fe76d-c84a-4003-950e-574ddda629b2)
+
+![](https://64.media.tumblr.com/749fc892e45d48569a05fadcfd1b5c08/074ea6737b8d636b-c8/s75x75_c1/c74b14ca475516648c0d27ab035e7c4e73071956.gifv)
 
 
 
