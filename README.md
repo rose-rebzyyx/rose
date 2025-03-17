@@ -71,8 +71,9 @@
 
 ![](https://64.media.tumblr.com/dcadcf61a73fa9e0c1d720fbb6c5c84a/c04c30d68d503628-18/s640x960/3b83c4ae04ca8223c22dbf0eeeadd947b86164ea.gifv)
 
+![ezgif-101bbbea7e628b (2)](https://github.com/user-attachments/assets/6fce8f96-7cf3-4db2-b166-4c8aaa80a5c1)
 
-- ## ![](https://64.media.tumblr.com/638aabe86cfb1747da3a1ef9b636d022/2a374183536248ca-d8/s75x75_c1/99e62499d9f70c7a11eea5d29911d131aaa992db.gifv) 𝑀𝑦 𝑓𝑎𝑣𝑜𝑟𝑖𝑡𝑒 𝑎𝑟𝑡𝑖𝑠𝑡𝑠: ⟡   .  ![](https://64.media.tumblr.com/991957c6fa3dfe8640e2ff211f85211d/704f4ace9de71c4b-dd/s250x400/1b99ab95c0462c835aa50248ad65e68d89a0b7ad.gifv)  ୧  .  ꒱
+- ## ![](https://64.media.tumblr.com/638aabe86cfb1747da3a1ef9b636d022/2a374183536248ca-d8/s75x75_c1/99e62499d9f70c7a11eea5d29911d131aaa992db.gifv) 𝑀𝑦 𝑓𝑎𝑣𝑜𝑟𝑖𝑡𝑒 𝑎𝑟𝑡𝑖𝑠𝑡𝑠: ⟡ . ![](https://64.media.tumblr.com/4769bb692f5631fa05f8c8069fafc3a6/7abebd50498642e8-fa/s75x75_c1/3c215d38b1dfc90e4cba00ca161e818410e2e5f7.gifv) ![](https://64.media.tumblr.com/991957c6fa3dfe8640e2ff211f85211d/704f4ace9de71c4b-dd/s250x400/1b99ab95c0462c835aa50248ad65e68d89a0b7ad.gifv)  ୧  .  ꒱
 
 ##### *Оᴛ бᴏᴧᴇᴇ ᴧюбиʍых ᴋ ʍᴇнᴇᴇ ᴧюбиʍыʍ:*
 
@@ -82,18 +83,35 @@
 
 *Вᴀᴧᴇнᴛин Сᴛᴩыᴋᴀᴧᴏ, Эᴧᴇᴋᴛᴩᴏɸᴏᴩᴇɜ, Кᴏʍᴄᴏʍᴏᴧьᴄᴋ, Зᴇʍɸиᴩᴀ, Мᴏнᴇᴛᴏчᴋᴀ, Кᴏʍбинᴀция, Нᴇжнᴏᴇ ϶ᴛᴏ, Пᴏᴧʍᴀᴛᴇᴩи, Пᴏɯᴧᴀя ʍᴏᴧᴧи,*
 
+![tumblr_cd0dc6dedc33727a38c1d3d52b0acde2_2fe0c33e_400 (1)](https://github.com/user-attachments/assets/d14729d5-0912-4276-a920-d859043bb9fd)
+
+
+![tumblr_b4e587bf4355961bb47dc641ee281722_20ca2ed1_400 (1)](https://github.com/user-attachments/assets/45aef227-72bf-4086-a49d-bc281c2bb85f)
+
+![](https://64.media.tumblr.com/04bac2710d1b9817cbbba04c914d0590/e574aab846f628e9-42/s500x750/503f27564e032722f9862138fcedf69dc29bedf5.gifv)
+
+# **Дᴧя ʍᴏих ʍᴀᴧых:**
+
+
+
+
 
 
 ![0206-nyancat](https://github.com/user-attachments/assets/c3d07569-2483-414d-9600-03ae8ea12484)
-![](https://64.media.tumblr.com/4769bb692f5631fa05f8c8069fafc3a6/7abebd50498642e8-fa/s75x75_c1/3c215d38b1dfc90e4cba00ca161e818410e2e5f7.gifv)
 
-![Tumblr_l_14298600085311](https://github.com/user-attachments/assets/d6081474-17d2-4353-bc51-50bb0736c2b1)
+![Лапкиl_14298600085311](https://github.com/user-attachments/assets/d6081474-17d2-4353-bc51-50bb0736c2b1)
 
-![Tumblr_l_13945029900872](https://github.com/user-attachments/assets/0c0a32fc-2616-43ec-a9c8-bea53bbfdadd)
+
+
+
+
+
+
 
 ![](https://64.media.tumblr.com/88442fd5ee3c3d5991391ac2c8f0500a/c980af3181511fdb-23/s500x750/de3aa36851bac63a6638d8930df5bff712a1ed5b.gifv)
+![](https://64.media.tumblr.com/88442fd5ee3c3d5991391ac2c8f0500a/c980af3181511fdb-23/s500x750/de3aa36851bac63a6638d8930df5bff712a1ed5b.gifv)
 
-
+![Tumblr_l_13945029900872](https://github.com/user-attachments/assets/0c0a32fc-2616-43ec-a9c8-bea53bbfdadd)
 
 ![](https://64.media.tumblr.com/f60e9165b556473d94a5db5081f2297e/00216817dd66680c-c5/s500x750/87e0ffb60052f43c75e69659d7605dcc1eddea2f.pnj)
 ![](https://64.media.tumblr.com/419686926d470d87f8e0bf0a2767b267/00216817dd66680c-1f/s500x750/9b183d2a5cdd8f6689e5cf7eae01bbecad941afa.pnj)
