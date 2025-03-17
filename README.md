@@ -192,6 +192,7 @@
 ![](https://64.media.tumblr.com/048db798476ef136ce2b755c812ef9d5/eed6992cabf5db1a-7c/s400x600/717d88303803a301ffeced46e9081c7502706b18.gifv)
 
 - *для Юми и Китика:*
+лука и иван 
 
 
 ㅤㅤㅤㅤ![Лапкиl_14298600085311](https://github.com/user-attachments/assets/d6081474-17d2-4353-bc51-50bb0736c2b1)
