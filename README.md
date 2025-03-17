@@ -93,12 +93,26 @@
 # ㅤㅤㅤㅤ**Дᴧя ʍᴏих ʍᴀᴧых:**
 
 ㅤ![](https://64.media.tumblr.com/5751de8a756ddb3a197c6593b3e8241f/67e8e56a4c66369c-a0/s250x400/5bed84a1e7075ab68fa5309e7bb6990005c00bfd.gifv)
-![](https://64.media.tumblr.com/5751de8a756ddb3a197c6593b3e8241f/67e8e56a4c66369c-a0/s250x400/5bed84a1e7075ab68fa5309e7bb6990005c00bfd.gifv)
+![nbvgw4 (1)](https://github.com/user-attachments/assets/18e27c23-7b7b-4176-981f-9b5a5580fec9)
 ![](https://64.media.tumblr.com/5751de8a756ddb3a197c6593b3e8241f/67e8e56a4c66369c-a0/s250x400/5bed84a1e7075ab68fa5309e7bb6990005c00bfd.gifv)
 
 ㅤㅤㅤㅤㅤㅤ![0206-nyancat](https://github.com/user-attachments/assets/c3d07569-2483-414d-9600-03ae8ea12484)
 
-- *** Дᴧя ʍᴏᴇй ᴧюбиʍᴏй ɜᴀᴇчᴋи ᴋᴏᴛичᴋи ᴨуᴨᴄичᴋи ᴋᴏнɸᴇᴛᴏчᴋи ᴄᴧᴀдуᴄичᴋи бубᴏчᴋи НЭО:***
+- ![](https://64.media.tumblr.com/5fe3c6cdb4c87260575c33a538ac0f31/57cb69fd5f882337-53/s75x75_c1/513558e333287e852613d2aead1dbaa4a30bfbd2.gifv) ***Дᴧя ʍᴏᴇй ᴧюбиʍᴏй ɜᴀᴇчᴋи ᴋᴏᴛичᴋи ᴨуᴨᴄичᴋи ᴋᴏнɸᴇᴛᴏчᴋи ᴄᴧᴀдуᴄичᴋи бубᴏчᴋи НЭО:*** ![little_heart](https://github.com/user-attachments/assets/22ec4479-6780-4af3-8696-9a6e96fb07e1)
+
+
+![image](https://github.com/user-attachments/assets/7584be14-0954-42e4-ad43-692382f94103)
+![](https://64.media.tumblr.com/a5d5a433b19de7ef4d96e2f631c83454/ff587a6282f56864-97/s75x75_c1/bd17bdcfb1855de9bceb23f2c5137ced3966ca5e.gifv)
+![iheartyou](https://github.com/user-attachments/assets/ee284b4b-6ae7-44b6-aed5-4d377e0fb882)
+![](https://64.media.tumblr.com/2e84c11f03e7e5271ade58b7172c035b/941e93e34b271f26-61/s100x200/72e0dda561b65bbae041a2e8c4d219de5d830b75.gifv)
+![2xwvws](https://github.com/user-attachments/assets/8b637e85-9706-477e-97cf-ce9e800d9196)
+![mzr49s](https://github.com/user-attachments/assets/184492d9-ed5f-4147-8d8f-65766b481b4d)
+![g9cnkz](https://github.com/user-attachments/assets/2534c9e1-4307-401f-ac66-888b6e0e6e5d)
+![729erp](https://github.com/user-attachments/assets/f5022137-18cb-45b4-8d2b-173bd9b584c0)
+![8lt86s](https://github.com/user-attachments/assets/6503d810-cdcc-475f-89fa-9903804288c8)
+
+
+
 
 
 
