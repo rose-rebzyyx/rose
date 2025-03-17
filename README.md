@@ -100,6 +100,10 @@
 
 - ![](https://64.media.tumblr.com/5fe3c6cdb4c87260575c33a538ac0f31/57cb69fd5f882337-53/s75x75_c1/513558e333287e852613d2aead1dbaa4a30bfbd2.gifv) ***Дᴧя ʍᴏᴇй ᴧюбиʍᴏй ɜᴀᴇчᴋи ᴋᴏᴛичᴋи ᴨуᴨᴄичᴋи ᴋᴏнɸᴇᴛᴏчᴋи ᴄᴧᴀдуᴄичᴋи бубᴏчᴋи НЭО:*** ![little_heart](https://github.com/user-attachments/assets/22ec4479-6780-4af3-8696-9a6e96fb07e1)
 
+![La Signora](https://github.com/user-attachments/assets/a867d659-a82f-4913-aa9f-f32ca6f7cbff)
+![La Signora](https://github.com/user-attachments/assets/c6c097c4-e3e1-42fc-8c1d-0ba668e6122b)
+
+##### ПРОСТИТЕ ЗА СКРИМЕР. ВСЁ РАДИ ЛЮБИМОЙ.
 
 ![image](https://github.com/user-attachments/assets/ece54072-f1f5-4fe5-9b42-ff61db0ad8bf)
 
@@ -169,7 +173,14 @@
 ![](https://64.media.tumblr.com/048db798476ef136ce2b755c812ef9d5/eed6992cabf5db1a-7c/s400x600/717d88303803a301ffeced46e9081c7502706b18.gifv)
 
 
+- *Для Яны:*
 
+![Download (online-video-cutter com) (1)](https://github.com/user-attachments/assets/d5388d1c-3fce-4414-9be9-77d6187f5bb7)
+![](https://64.media.tumblr.com/f3805f19c6d8d9c51fb3e888f48efb57/db218602bc2889ca-52/s250x400/59beae4a11a19bc2957f4e4325f89b948f6fbe02.gifv)
+
+
+![](https://img1.picmix.com/output/pic/normal/6/1/2/0/12050216_d23f3.gif)
+![](https://media1.tenor.com/m/DyOiQZ8xLIgAAAAd/capitaru-capitano.gif)
 
 
 
