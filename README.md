@@ -100,7 +100,7 @@
 
 - ![](https://64.media.tumblr.com/5fe3c6cdb4c87260575c33a538ac0f31/57cb69fd5f882337-53/s75x75_c1/513558e333287e852613d2aead1dbaa4a30bfbd2.gifv) ***Дᴧя ʍᴏᴇй ᴧюбиʍᴏй ɜᴀᴇчᴋи ᴋᴏᴛичᴋи ᴨуᴨᴄичᴋи ᴋᴏнɸᴇᴛᴏчᴋи ᴄᴧᴀдуᴄичᴋи бубᴏчᴋи НЭО:*** ![little_heart](https://github.com/user-attachments/assets/22ec4479-6780-4af3-8696-9a6e96fb07e1)
 
-![Screenshot_20250318_163320_Pinterest](https://github.com/user-attachments/assets/51cd3df2-54f7-4321-ab08-98d991dfdb11)
+![424030992-51cd3df2-54f7-4321-ab08-98d991dfdb11 (1)](https://github.com/user-attachments/assets/b04b4d26-b0ad-4138-a289-2e766a5828f8)
 
 Подмышка Синьоры
 
@@ -150,13 +150,11 @@
 
 - *Для Финна и Ксюши:*
 
-![](https://64.media.tumblr.com/96ea00d4430ab7173a20df3a410035fe/941e93e34b271f26-8c/s75x75_c1/6d39055aaa32b1c95f87e280c9856f618a82516b.gifv)
-
-![fc084ad1ec05883fb8e4de1000a6a9cf](https://github.com/user-attachments/assets/0545abd6-e95a-4c9f-adf7-5c2545c88700)
+![424028544-0545abd6-e95a-4c9f-adf7-5c2545c88700 (1)](https://github.com/user-attachments/assets/78e03deb-63dd-41b1-a30a-eac12b319bd1)
 
 КСЮША И ФИНН
 
-![c08c0caea60d56fa1fdb45988fbd09e4](https://github.com/user-attachments/assets/279c6827-5b2b-4451-a7ae-13c0d13c814e)
+![424029199-279c6827-5b2b-4451-a7ae-13c0d13c814e (1)](https://github.com/user-attachments/assets/5d18ef17-29ff-4aae-9830-d41f1be00c59)
 
 Детки в их возрасте только ходить учатся а они вон как выплясывают!
 
@@ -187,7 +185,7 @@
 
 - *Для Яны:*
 
-![5e2ed5f2aa7b2a1c3cbcfe8da1e1556f](https://github.com/user-attachments/assets/f2dccfa8-ec4e-4a74-bd0e-e6278770bdcb)
+![424026370-f2dccfa8-ec4e-4a74-bd0e-e6278770bdcb (1)](https://github.com/user-attachments/assets/5c32244d-1422-4de2-a349-3deb4072e387)
 
 Урааа гейпорносиськиписьки
 
@@ -195,8 +193,9 @@
 ![](https://64.media.tumblr.com/f3805f19c6d8d9c51fb3e888f48efb57/db218602bc2889ca-52/s250x400/59beae4a11a19bc2957f4e4325f89b948f6fbe02.gifv)
 
 
-![](https://img1.picmix.com/output/pic/normal/6/1/2/0/12050216_d23f3.gif)
 ![](https://media1.tenor.com/m/DyOiQZ8xLIgAAAAd/capitaru-capitano.gif)
+![687474707 (1)](https://github.com/user-attachments/assets/735423e7-d625-4606-b175-5b41340d6b7c)
+
 
 ![](https://64.media.tumblr.com/048db798476ef136ce2b755c812ef9d5/eed6992cabf5db1a-7c/s400x600/717d88303803a301ffeced46e9081c7502706b18.gifv)
 
