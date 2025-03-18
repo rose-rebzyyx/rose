@@ -107,7 +107,7 @@
 ![La Signora](https://github.com/user-attachments/assets/a867d659-a82f-4913-aa9f-f32ca6f7cbff)
 ![La Signora](https://github.com/user-attachments/assets/c6c097c4-e3e1-42fc-8c1d-0ba668e6122b)
 
-##### ПРОСТИТЕ ЗА СКРИМЕР. ВСЁ РАДИ ЛЮБИМОЙ.
+ПРОСТИТЕ ЗА СКРИМЕР. ВСЁ РАДИ ЛЮБИМОЙ.
 
 ![image](https://github.com/user-attachments/assets/ece54072-f1f5-4fe5-9b42-ff61db0ad8bf)
 
@@ -223,14 +223,19 @@
 
 - *Для Ники:*
 
-дотторе доттоцест гемы карлотта из вувы
+
+![tumblr_10ad49f5446b57ca76923fd64c59a72d_041cc86b_1280 (1)](https://github.com/user-attachments/assets/bb92cdfb-2be8-4e65-8a42-acd981029beb)
+
 
 ![424101)](https://github.com/user-attachments/assets/3da78820-3b16-49ae-857d-845a2ab71505)
+
+![image](https://github.com/user-attachments/assets/b1018e2f-4237-4a30-bb6e-b84664e49eac)
 
 
 ![image](https://github.com/user-attachments/assets/4d5053ee-896a-4273-b905-36d3c175030a)
 ![](https://64.media.tumblr.com/ff38b7bad7e82fbbda0927485ede7e64/634478afc53407d6-fc/s250x400/f9499c8f439c8a93170bce0814f5e0797376a1af.gifv)
 ![](https://64.media.tumblr.com/2d9fea7c88566e29c91332a1460ae487/61800744d6453cc4-11/s100x200/b0f9bb6729e21d2eb33d183fe162c95d0e526b06.gifv)
+![image](https://github.com/user-attachments/assets/4d5053ee-896a-4273-b905-36d3c175030a)
 
 
 
