@@ -131,8 +131,13 @@
 
 ![image](https://github.com/user-attachments/assets/13d0c4fd-259d-4a2c-aa25-52bb79cc0a47)
 
+![image](https://github.com/user-attachments/assets/9f4016f5-4d91-46a1-92d7-9aefb573ddda)
+
+Олежа и Ромео
+
 ![](https://64.media.tumblr.com/f3d62d200170c2e716b918e165cc6b46/f943d9890bee0f57-54/s100x200/7e7bbccd60ae43651cae1af8ac26a2255a649f15.gifv)
 ![](https://64.media.tumblr.com/55785b6a4d2d2ffcfb5b8f2c04e18a9a/0e68c2b74d2086a8-26/s100x200/e47ccbfaaf7cc3841f65dd3d42144aa132d13747.gifv)
+![image](https://github.com/user-attachments/assets/e536e142-5542-4118-9ede-029b2631d28c)
 
 ![](https://64.media.tumblr.com/b798d8750887082d9e95cbb078ab4626/6eac0cbc1027da31-8b/s250x400/90defaa865e48391b6c2fa125e67d49823117221.gifv)
 ![](https://64.media.tumblr.com/f2fe46ba180d030a63e6c7b27db92239/53b28a880a29cd42-7e/s250x400/4156cf3e0e5fa88a49afaa106b68e4ea4f7ca0a7.gifv)
@@ -142,6 +147,7 @@
 ![](https://64.media.tumblr.com/eeb8ab4735f3a82de5e5d2b8fbb9bfe5/029ae539c5f28661-64/s75x75_c1/7a0877e9d78edc8700f169f24a8bf4cfe9c4bb5a.gifv)
 ![Furry-Blue-V1](https://github.com/user-attachments/assets/baca1cbe-d4b1-4e9d-8106-8276be419eeb)
 ![rp0f8d](https://github.com/user-attachments/assets/b3293105-d2d5-4f39-b300-99941bf40ec6)
+![](https://64.media.tumblr.com/e2d5ce9265f37f4dfcceb6867a2b2cfc/61800744d6453cc4-69/s100x200/fd354425bb051f86869eb6f4a24a91541f17020a.gifv)
 
 
 
@@ -151,12 +157,13 @@
 - *Для Финна и Ксюши:*
 
 ![424028544-0545abd6-e95a-4c9f-adf7-5c2545c88700 (1)](https://github.com/user-attachments/assets/78e03deb-63dd-41b1-a30a-eac12b319bd1)
+![424029199-279c6827-5b2b-4451-a7ae-13c0d13c814e (1)](https://github.com/user-attachments/assets/5d18ef17-29ff-4aae-9830-d41f1be00c59)
 
 КСЮША И ФИНН
 
-![424029199-279c6827-5b2b-4451-a7ae-13c0d13c814e (1)](https://github.com/user-attachments/assets/5d18ef17-29ff-4aae-9830-d41f1be00c59)
-
 Детки в их возрасте только ходить учатся а они вон как выплясывают!
+
+![54cba3ca77bf8d90f40edea7ef26518e (1)](https://github.com/user-attachments/assets/dc49cf79-de7d-4982-adc7-eccf81610ead)
 
 ![](https://64.media.tumblr.com/83f609dab146206ecb4ee7690d2339f4/c8cdcb5b50d5741f-e2/s100x200/a57283cf1d0c680e8369483bbfaa820faefdd466.gifv)
 ![image](https://github.com/user-attachments/assets/0a68d6e7-e50b-4741-a9a4-3870be42004e)
@@ -175,8 +182,11 @@
 
 ![image](https://github.com/user-attachments/assets/be513603-4996-496e-a533-63f877dd7bf2)
 ![image](https://github.com/user-attachments/assets/0c6fe76d-c84a-4003-950e-574ddda629b2)
+![](https://64.media.tumblr.com/8d4542677651c27eeb78d37d90baa3cd/a275af98f60f2295-3e/s250x400/8c76c475a551b5ab5b93f6e8173d0b530cbad0db.gifv)
+![](https://64.media.tumblr.com/0fa4779c65798772d92035f4d65e436e/a275af98f60f2295-fd/s250x400/90ce6b29422177617cfeded7cbf1c91dd183a18e.gifv)
 
 ![](https://64.media.tumblr.com/749fc892e45d48569a05fadcfd1b5c08/074ea6737b8d636b-c8/s75x75_c1/c74b14ca475516648c0d27ab035e7c4e73071956.gifv)
+![](https://64.media.tumblr.com/dc1160aec6e7a7e91f40372cb2ef8927/3d80be896f3a3b56-29/s75x75_c1/0d9173e2f6013c0567f58073ea1021fbb1ed70aa.gifv)
 
 
 
@@ -186,6 +196,7 @@
 - *Для Яны:*
 
 ![424026370-f2dccfa8-ec4e-4a74-bd0e-e6278770bdcb (1)](https://github.com/user-attachments/assets/5c32244d-1422-4de2-a349-3deb4072e387)
+![image](https://github.com/user-attachments/assets/f1f870d2-8c65-4e4d-a413-906928010e3a)
 
 Урааа гейпорносиськиписьки
 
@@ -206,8 +217,36 @@
 
 ![](https://64.media.tumblr.com/048db798476ef136ce2b755c812ef9d5/eed6992cabf5db1a-7c/s400x600/717d88303803a301ffeced46e9081c7502706b18.gifv)
 
-- *для Юми и Китика:*
-лука и иван 
+- *Для Ники:*
+
+дотторе доттоцест гемы карлотта из вувы
+![image](https://github.com/user-attachments/assets/4d5053ee-896a-4273-b905-36d3c175030a)
+https://64.media.tumblr.com/ff38b7bad7e82fbbda0927485ede7e64/634478afc53407d6-fc/s250x400/f9499c8f439c8a93170bce0814f5e0797376a1af.gifv
+https://64.media.tumblr.com/2d9fea7c88566e29c91332a1460ae487/61800744d6453cc4-11/s100x200/b0f9bb6729e21d2eb33d183fe162c95d0e526b06.gifv
+
+
+![](https://64.media.tumblr.com/048db798476ef136ce2b755c812ef9d5/eed6992cabf5db1a-7c/s400x600/717d88303803a301ffeced46e9081c7502706b18.gifv)
+
+
+- *Для Юми и Китика:*
+
+
+![](https://64.media.tumblr.com/0d4009274239c5a41b8176285a1b1a35/835396812ab98429-f1/s250x400/646f3f49f3d19ec3ebd11ccef1691fd96f257704.gifv)
+![](https://64.media.tumblr.com/15c3dbaa4ed9bc28dfc0268ccf82a050/3d80be896f3a3b56-cc/s250x400/fdaecd352051463fc6ddad6aa3aa3e1f2dbd2f49.gifv)
+
+![](https://64.media.tumblr.com/67ff2d86904662af606750d23001831a/178e2f094de5bca4-d7/s250x400/3c35ca6c0e023e53f57086067951a7ea3de5c2ed.gifv)
+![](https://64.media.tumblr.com/2dd0995ccfe58f473298aa79efeb21ae/178e2f094de5bca4-76/s250x400/34d65434c05ebd3e06505b1788ec93c64fc83530.gifv)
+
+![](https://64.media.tumblr.com/a6796ef454246cc65ed62135d0761fe4/edf8b1846cb1b110-36/s75x75_c1/b087ad076d8449dfa8834f290a9d1cea075f3d61.gifv)
+![](https://64.media.tumblr.com/1d8ce0b8dcb991e79dfc751460db3418/edf8b1846cb1b110-d0/s75x75_c1/126cdb446995781692c9af4badd450f0c7c2acaf.gifv)
+![](https://64.media.tumblr.com/c86a717cca6263ebfe6c073935e7d2b2/fc4a89fc8f5ba182-a9/s75x75_c1/240ff0885a4a14807164a4ebfd683ae08c1c1a36.gifv)
+![](https://64.media.tumblr.com/f4e996ab1a47bdb23482802bd72b2a5c/fc4a89fc8f5ba182-2e/s75x75_c1/4193f48f9d4bafe96fb73340110e16665f258428.gifv)
+
+![](https://64.media.tumblr.com/3a78afd5661efce83e7f686c056beb6e/edf8b1846cb1b110-b6/s100x200/9aca84a2faaf4aa07d969bdfe272d949c6ef3bbb.gifv)
+![](https://64.media.tumblr.com/008d96607be5825632cbec8ccf604f9c/edf8b1846cb1b110-e0/s100x200/f451f747bae70fd59710d9d80b2f68ce20391d4e.gifv)
+
+
+
 
 
 ㅤㅤㅤㅤ![Лапкиl_14298600085311](https://github.com/user-attachments/assets/d6081474-17d2-4353-bc51-50bb0736c2b1)
