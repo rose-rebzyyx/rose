@@ -214,12 +214,6 @@
 
 ![](https://64.media.tumblr.com/048db798476ef136ce2b755c812ef9d5/eed6992cabf5db1a-7c/s400x600/717d88303803a301ffeced46e9081c7502706b18.gifv)
 
-- *Для Аринки Мандаринки:*
-
-
-
-
-![](https://64.media.tumblr.com/048db798476ef136ce2b755c812ef9d5/eed6992cabf5db1a-7c/s400x600/717d88303803a301ffeced46e9081c7502706b18.gifv)
 
 - *Для Ники:*
 
@@ -228,6 +222,10 @@
 
 
 ![424101)](https://github.com/user-attachments/assets/3da78820-3b16-49ae-857d-845a2ab71505)
+
+![photo_2025-03-18_21-21-59 (1) (1)](https://github.com/user-attachments/assets/9b8b8fd3-f4af-427e-bffb-08b425cb0229)
+
+![photo_2025-03-18_21-22-03 (1) (1)](https://github.com/user-attachments/assets/4564654d-3036-4ff9-a8f8-b7fa944a26a3)
 
 ![image](https://github.com/user-attachments/assets/b1018e2f-4237-4a30-bb6e-b84664e49eac)
 
