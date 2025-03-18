@@ -258,16 +258,21 @@
 
 
 
-!
-
+![](https://64.media.tumblr.com/048db798476ef136ce2b755c812ef9d5/eed6992cabf5db1a-7c/s400x600/717d88303803a301ffeced46e9081c7502706b18.gifv)
 
 ㅤㅤㅤㅤ![Лапкиl_14298600085311](https://github.com/user-attachments/assets/d6081474-17d2-4353-bc51-50bb0736c2b1)
 
 
+![](https://64.media.tumblr.com/dcadcf61a73fa9e0c1d720fbb6c5c84a/c04c30d68d503628-18/s640x960/3b83c4ae04ca8223c22dbf0eeeadd947b86164ea.gifv)
+
+![](https://64.media.tumblr.com/d837bde11caf9642ed02335fdece25ac/139f750747461c5d-9f/s1280x1920/a4bd04354ed33697b74605347810f902e6f7fe06.gifv)
+
+
 
 
 ![](https://64.media.tumblr.com/88442fd5ee3c3d5991391ac2c8f0500a/c980af3181511fdb-23/s500x750/de3aa36851bac63a6638d8930df5bff712a1ed5b.gifv)
 ![](https://64.media.tumblr.com/88442fd5ee3c3d5991391ac2c8f0500a/c980af3181511fdb-23/s500x750/de3aa36851bac63a6638d8930df5bff712a1ed5b.gifv)
+
 
 ![Tumblr_l_13945029900872](https://github.com/user-attachments/assets/0c0a32fc-2616-43ec-a9c8-bea53bbfdadd)
 
