@@ -100,6 +100,10 @@
 
 - ![](https://64.media.tumblr.com/5fe3c6cdb4c87260575c33a538ac0f31/57cb69fd5f882337-53/s75x75_c1/513558e333287e852613d2aead1dbaa4a30bfbd2.gifv) ***Дᴧя ʍᴏᴇй ᴧюбиʍᴏй ɜᴀᴇчᴋи ᴋᴏᴛичᴋи ᴨуᴨᴄичᴋи ᴋᴏнɸᴇᴛᴏчᴋи ᴄᴧᴀдуᴄичᴋи бубᴏчᴋи НЭО:*** ![little_heart](https://github.com/user-attachments/assets/22ec4479-6780-4af3-8696-9a6e96fb07e1)
 
+![Screenshot_20250318_163320_Pinterest](https://github.com/user-attachments/assets/51cd3df2-54f7-4321-ab08-98d991dfdb11)
+
+Подмышка Синьоры
+
 ![La Signora](https://github.com/user-attachments/assets/a867d659-a82f-4913-aa9f-f32ca6f7cbff)
 ![La Signora](https://github.com/user-attachments/assets/c6c097c4-e3e1-42fc-8c1d-0ba668e6122b)
 
@@ -148,6 +152,14 @@
 
 ![](https://64.media.tumblr.com/96ea00d4430ab7173a20df3a410035fe/941e93e34b271f26-8c/s75x75_c1/6d39055aaa32b1c95f87e280c9856f618a82516b.gifv)
 
+![fc084ad1ec05883fb8e4de1000a6a9cf](https://github.com/user-attachments/assets/0545abd6-e95a-4c9f-adf7-5c2545c88700)
+
+КСЮША И ФИНН
+
+![c08c0caea60d56fa1fdb45988fbd09e4](https://github.com/user-attachments/assets/279c6827-5b2b-4451-a7ae-13c0d13c814e)
+
+Детки в их возрасте только ходить учатся а они вон как выплясывают!
+
 ![](https://64.media.tumblr.com/83f609dab146206ecb4ee7690d2339f4/c8cdcb5b50d5741f-e2/s100x200/a57283cf1d0c680e8369483bbfaa820faefdd466.gifv)
 ![image](https://github.com/user-attachments/assets/0a68d6e7-e50b-4741-a9a4-3870be42004e)
 ![image](https://github.com/user-attachments/assets/8ce0ee01-19e7-4b11-a00e-f4d7773ae0f4)
@@ -174,6 +186,10 @@
 
 
 - *Для Яны:*
+
+![5e2ed5f2aa7b2a1c3cbcfe8da1e1556f](https://github.com/user-attachments/assets/f2dccfa8-ec4e-4a74-bd0e-e6278770bdcb)
+
+Урааа гейпорносиськиписьки
 
 ![Download (online-video-cutter com) (1)](https://github.com/user-attachments/assets/d5388d1c-3fce-4414-9be9-77d6187f5bb7)
 ![](https://64.media.tumblr.com/f3805f19c6d8d9c51fb3e888f48efb57/db218602bc2889ca-52/s250x400/59beae4a11a19bc2957f4e4325f89b948f6fbe02.gifv)
