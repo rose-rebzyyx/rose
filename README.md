@@ -9,7 +9,7 @@
 ##### 𝒶𝓇𝑒 𝒾𝓃𝓉𝑒𝓇𝑒𝓈𝓉𝑒𝒹, 𝑜𝓇, 𝓎𝑜𝓊 𝒶𝓇𝑒 𝒶 𝓈𝓉𝒶𝓁𝓀𝑒𝓇 !  ![](https://64.media.tumblr.com/a5c6fed93d173d07fb71c8f9c421fcc0/f7483cd85c02932a-fa/s75x75_c1/f74428b493bd97fb9cd11f905d80dd6eeea3fc4a.gifv) ![](https://64.media.tumblr.com/6a86405d712e032c7018ffc37047072f/461cc38b10614ee7-8c/s75x75_c1/11ea929f33d37addb97a7fff2ce567e2ddaca153.gifv) ![](https://64.media.tumblr.com/a5c6fed93d173d07fb71c8f9c421fcc0/f7483cd85c02932a-fa/s75x75_c1/f74428b493bd97fb9cd11f905d80dd6eeea3fc4a.gifv)
 
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ- 𝐑𝐔/𝐄𝐍𝐆 -
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ- 𝐑𝐔/𝐄𝐍𝐆 -
 
 ###  ![](https://64.media.tumblr.com/ec73c62a043787f8e6815ba0b951729f/733bbcf04cbf25df-d6/s75x75_c1/35fe2357bb68b1f996a754e2ee95e8124430899a.gifv) ___Я Рᴏɜᴀ/𝚁𝚘𝚜𝚎 !___
 
@@ -225,7 +225,6 @@
 ![photo_2025-03-18_21-21-59 (1) (1)](https://github.com/user-attachments/assets/9b8b8fd3-f4af-427e-bffb-08b425cb0229)
 
 ![photo_2025-03-18_21-22-03 (1) (1)](https://github.com/user-attachments/assets/4564654d-3036-4ff9-a8f8-b7fa944a26a3)
-
 ![image](https://github.com/user-attachments/assets/b1018e2f-4237-4a30-bb6e-b84664e49eac)
 
 
@@ -278,9 +277,9 @@
 ![Tumblr_l_13945029900872](https://github.com/user-attachments/assets/0c0a32fc-2616-43ec-a9c8-bea53bbfdadd)
 
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![ezgif-3d68c184774c6f (1)](https://github.com/user-attachments/assets/4213a0e7-2f06-497e-a78e-c367283f40db)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤ![ezgif-3d68c184774c6f (1)](https://github.com/user-attachments/assets/4213a0e7-2f06-497e-a78e-c367283f40db)
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![ezgif-379afb265ea59a (1)](https://github.com/user-attachments/assets/5b51aaf7-45c9-4162-b309-f33cfee78ac1)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤ![ezgif-379afb265ea59a (1)](https://github.com/user-attachments/assets/5b51aaf7-45c9-4162-b309-f33cfee78ac1)
 
 
 ![](https://64.media.tumblr.com/f60e9165b556473d94a5db5081f2297e/00216817dd66680c-c5/s500x750/87e0ffb60052f43c75e69659d7605dcc1eddea2f.pnj)
